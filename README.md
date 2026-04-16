@@ -187,5 +187,5 @@ MIT License
 
 ## 🙋 Author
 
-**[Your Name]**  
-[GitHub](https://github.com/your-username) | [LinkedIn](https://linkedin.com/in/your-profile)
+**Akhmedova Robiyakhon**  
+[GitHub](https://github.com/robiyakhmed13-ux)) | [LinkedIn] (www.linkedin.com/in/robiyakhon-akhmedova-06467b324)
